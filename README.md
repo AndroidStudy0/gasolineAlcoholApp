@@ -1,2 +1,2 @@
 ### Layout
-![Captura de tela 2024-09-12 152210.png](..%2F..%2FDownloads%2FCaptura%20de%20tela%202024-09-12%20152210.png)
+![Captura de tela 2024-09-12 152210](https://github.com/user-attachments/assets/79849995-2ec4-4a02-ab17-7f8c5afc11c7)
